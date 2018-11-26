@@ -20,3 +20,5 @@ Nossa doutrina é brasa que incandesce nossos corações revigorando-nos à cami
 > ” maior caridade que podemos fazer pela doutrina espírita é a sua divulgação”  
 Emmanuel.
 
+# Source
+https://espiritismodaalma.wordpress.com/2017/12/27/divulgar-o-espiritismo-um-trabalho-de-caridade/

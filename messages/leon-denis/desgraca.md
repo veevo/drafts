@@ -1,0 +1,21 @@
+# O que é a desgraça
+
+Para apreciar os bens e os males da existência, para saber em que consiste a verdadeira desgraça, em que consiste a felicidade, é necessário nos elevarmos acima do círculo acanhado da vida terrena. O conhecimento do futuro e da sorte que nos aguarda permite medir as conseqüências dos nossos atos e sua influência sobre os tempos vindouros.
+
+Observada sob este ponto de vista, a desgraça, para o ser humano, já não é mais o sofrimento, a perda dos entes que lhe são caros, as privações, a miséria; a desgraça será então tudo o que manchar, tudo o que aniquilar o adiantamento, tudo o que lhe for um obstáculo. A desgraça, para aquele que só observar os tempos presentes, pode ser a pobreza, as enfermidades, a moléstia. Para o Espírito que paira no alto, ela será o amor do prazer, o orgulho, a vida inútil e culposa. Não se pode julgar uma coisa sem se ver tudo o que dela decorre, e eis por que ninguém pode compreender a vida sem conhecer o seu alvo e as leis morais. As provações, purificando a alma, preparam sua ascensão e felicidade; no entanto, as alegrias deste mundo, as riquezas, as paixões entibiam-na e atiram-na para uma outra vida de amargas decepções. Assim, aquele que é oprimido pela adversidade pode esperar e erguer um olhar confiante para o céu; desde que resgata a sua dívida, conquista a liberdade; porém, esse que se compraz na sensualidade constrói a sua própria prisão, acumula novas responsabilidades que pesarão extraordinariamente sobre as suas vidas futuras.
+
+A dor, sob suas múltiplas formas, é o remédio supremo para as imperfeições, para as enfermidades da alma. Sem ela não é possível a cura. Assim como as moléstias orgânicas são muitas vezes resultantes dos nossos excessos, assim também as provas morais que nos atingem são conseqüentes das nossas faltas passadas. Cedo ou tarde, essas faltas recairão sobre nós com suas deduções lógicas. É a lei de justiça, de equilíbrio moral. Saibamos aceitar os seus efeitos como se fossem remédios amargos, operações dolorosas que devem restituir a saúde, a agilidade ao nosso corpo. Embora sejamos acabrunhados pelos desgostos, pelas humilhações e pela ruína, devemos sempre suportá-los com paciência. O lavrador rasga o seio da terra para daí fazer brotar a messe dourada. Assim a nossa alma, depois de desbastada, também se tornará exuberante em frutos morais.
+
+Pala ação da dor, larga tudo o que é impuro e mau, todos os apetites grosseiros, vícios e paixões, tudo o que vem da terra e deve para ela voltar. A adversidade é uma grande escola, um campo fértil em transformações. Sob seu influxo, as paixões más convertem-se pouco a pouco em paixões generosas, em amor do bem. Nada fica perdido. Mas, essa transformação é lenta e dificultosa, pois só pode ser operada pelo sofrimento, pela luta constante contra o mal, pelo nosso próprio sacrifício. Graças a estes, a alma adquire a experiência e a sabedoria. Os seus frutos verdes e amargos convertem-se, sob a ação regeneradora da prova, sob os raios do Sol divino, em frutos doces, aromáticos, amadurecidos, que devem ser colhidos em mundos superiores.
+
+Livres em nossas ações, isentos de males, de cuidados, deixar-nos-íamos impulsionar pelo sopro das paixões, deixar-nos-íamos arrebatar pelo temperamento. Longe de trabalharmos pela nossa melhoria, nada mais faríamos do que amontoar faltas novas sobre as faltas passadas; no entanto, comprimidos pelo sofrimento, em existências humildes, habituamo-nos à paciência, ao raciocínio, adquirimos essa calma de pensamento indispensável àquele que quiser ouvir a voz da razão.
+
+É no crisol da dor que se depuram as grandes almas. Às vezes, sob nossa vista, anjos de bondade vêm tragar o cálice de amargura, como exemplificação aos que são assustados pelos tormentos da paixão. A prova é uma reparação necessária, aceita com conhecimento de causa por muitos dentre nós. Oxalá assim pensemos nos momentos de desânimo, e que o espetáculo dos males suportados com essas grandes resignações nos dê a força de conservarmo-nos fiéis aos nossos próprios compromissos, às resoluções viris que tomamos antes de encarnar.
+
+
+# References
+Léon Denis  
+(Depois da Morte – Capítulo 50: Resignação na adversidade)  
+
+# Source
+http://betemensagemdodia.blogspot.com/2018/11/o-que-e-desgraca.html

@@ -1,2 +1,0 @@
-Léon Denis
-É no crisol da dor que se depuram as grandes almas Às vezes, sob nossa vista, Anjos de bondade vêm tragar o cálice de amargura, como exemplificação aos que são assustados pelos tormentos da paixão A prova é uma reparação necessária, aceita com conhecimento de causa por muitos dentre nós Oxalá assim pensemos nos momentos de desânimo, e que o espetáculo dos males suportados com essas grandes resignações nos dê a força de conservarmo-nos fiéis aos nossos próprios compromissos, às resoluções viris que tomamos antes de encarnar

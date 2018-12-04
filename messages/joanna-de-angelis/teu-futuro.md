@@ -1,3 +1,0 @@
-Joanna de Ângelis
-És autor do teu futuro, que escreves com as tuas ações atuais, assim como delineaste ontem as ocorrências de hoje
-Não te permitas o anestésico da ilusão, sempre temporária, porque despertarás inevitavelmente…

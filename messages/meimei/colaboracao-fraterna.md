@@ -1,2 +1,0 @@
-Meimei
-Dar nosso coração a quem nos recusa o olhar, amparar os que fogem de nossa presença, tangidos pela incompreensão e silenciar diante da calúnia, oferecendo aos que nos perseguem a essência mais pura de nossa colaboração fraterna – eis o tipo de caridade que Jesus, coroado de espinhos, consagrou na cruz da flagelação e da morte e que nos compete exemplificar, diariamente, se desejamos escalar a montanha da vida eterna

@@ -1,2 +1,0 @@
-Léon Denis
-Querer é poder! O poder da vontade é ilimitado O homem, consciente de si mesmo, de seus recursos latentes, sente crescerem suas forças na razão dos esforços Sabe que tudo o que de bem e bom desejar há de, mais cedo ou mais tarde, realizar-se inevitavelmente, ou na atualidade ou na série das suas existências, quando seu pensamento se puser de acordo com a Lei Divina E é nisso que se verifica a palavra celeste: “A Fé transporta montanhas"

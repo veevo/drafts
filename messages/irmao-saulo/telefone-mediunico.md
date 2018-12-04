@@ -1,7 +1,5 @@
 # O telefone mediúnico
-`Postado por Jocélia Quintiliano Maurício em 4 novembro 2018 às 13:30`
-
-4-5 minutes
+`4-5 minutes`
 
 Uns não acreditam nas comunicações dos espíritos, outros acreditam demais e querem obtê-las com a facilidade de uma ligação telefônica. Nem tanto ao céu, nem tanto à terra! Se as comunicações entre as criaturas terrenas nem sempre são fáceis, que dizer das que se processam entre os espíritos e os homens? Muita gente procura o médium como se ele fosse uma espécie de cabina telefônica. Mas nem sempre o circuito está livre e muitas vezes o espírito chamado não pode atender.
 

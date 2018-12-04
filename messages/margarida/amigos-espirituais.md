@@ -1,0 +1,2 @@
+Margarida
+"Amigos espirituais velam sempre junto à nossa cabeceira, nas horas de preocupação e insônia e, frequentemente quando desorientadas influencias nos incitam ao desvio, sopram-nos aos ouvidos espirituais as regras do código do dever"

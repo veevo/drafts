@@ -1,0 +1,2 @@
+Léon Denis
+Lembra-te de que tudo o que for material é efêmero As gerações passam como vagas do mar, os impérios esboroam-se, os próprios mundos perecem, os sóis extinguem-se; tudo foge, tudo se dissipa Mas há duas coisas que vêm de Deus e que são imutáveis como Ele, duas coisas que resplandecem acima da miragem das glórias mundanas: são a Sabedoria e a Virtude Conquista-as por teus esforços e, alcançando-as, elevar-te-ás acima do que é passageiro e transitório, para só gozares o que é eterno

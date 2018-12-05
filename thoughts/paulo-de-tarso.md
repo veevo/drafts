@@ -5,3 +5,5 @@ O esquecimento completo e absoluto das ofensas é peculiar às grandes almas; o 
 
 E vós, irmãos, não vos canseis de fazer o bem (2ª Epístola aos Tessalonicenses, 3:13)
 
+"E o fogo provará qual seja a obra de cada um." – Paulo. (1ª Epístola aos Coríntios, 3:13.)
+

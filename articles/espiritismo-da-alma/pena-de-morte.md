@@ -1,5 +1,5 @@
 # A pena de morte – Visão Espírita
-6-8 minutes
+`6-8 minutes`
 
 Que estamos passando por um momento de transição planetária nenhum espírita discorda. Porém ultimamente temos esbarrado em opiniões adversas sobre como lidar com as situações que nos põe a toda prova. Uma dessas situações é sobre a violência que vivenciamos a cada dia.
 

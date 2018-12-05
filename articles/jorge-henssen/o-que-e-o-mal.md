@@ -1,8 +1,6 @@
 # O que é o mal?
 > Tu és mestre em Israel e não conheces essas coisas?...
 
-#### Por Jane Maiolo & Jorge Hessen
-
 Uma das maiores indagações humanas, desde que o mundo é mundo, é a questão da existência do mal.
 
 O mal existe? Se existe, quem o criou?
@@ -47,6 +45,9 @@ A cada um segundo suas obras, disse Jesus. Por isso, a educação moral moldadas
 
 # Referência Bibliográfica
 [1] João 3, 10
+
+# Autores
+Jane Maiolo & Jorge Hessen
 
 # Source
 http://www.redeamigoespirita.com.br/group/artigosespiritas/forum/topics/o-que-e-o-mal-por-jane-maiolo-e-jorge-hessen

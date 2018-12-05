@@ -1,4 +1,4 @@
-# A VISÃO MÉDICO-ESPÍRITA DO ABORTO
+# A visão médico-espírita do aborto
 
 Devido à complexidade do tema aborto, é fundamental aliar a abordagem cientifica a espiritual. Para tanto, entrevistamos a dra. Marlene Nobre, médica ginecologista, presidente do Grupo Espírita Cairbar Schutel e da AME (Associação Médico-Espírita) do Brasil e Internacional. É também autora dos livros: Lições de Sabedoria, A Obsessão e Suas Mascaras, Nossa Vida no Além, A Alma da Matéria e O Clamor da Vida. Este último foi escrito com o propósito de ressaltar os argumentos científicos contra o aborto e propiciar ao publico uma compreensão de que a vida se expande muito mais além do que a formação de um feto.
 

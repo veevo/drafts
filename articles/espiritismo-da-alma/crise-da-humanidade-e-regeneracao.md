@@ -1,6 +1,5 @@
-
 # A crise da humanidade e a regeneração planetária
-6-8 minutes
+`6-8 minutes`
 
 ![](https://espiritismodaalma.files.wordpress.com/2015/09/03145725701652.jpg)
 

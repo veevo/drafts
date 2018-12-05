@@ -1,5 +1,5 @@
 # Sexo à luz da Espiritualidade
-10-14 minutes
+`10-14 minutes`
 
 > “…entendendo­-se que todos os compromissos na vida sexual estão igualmente subordinados à Lei de Causa e Efeito; e, segundo esse exato princípio, de tudo o que dermos a outrem, no  mundo afetivo, outrem também nos dará.”  
 Emannuel, do livro Vida e Sexo.

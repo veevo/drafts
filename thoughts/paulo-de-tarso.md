@@ -7,3 +7,4 @@ E vós, irmãos, não vos canseis de fazer o bem (2ª Epístola aos Tessalonicen
 
 "E o fogo provará qual seja a obra de cada um." – Paulo. (1ª Epístola aos Coríntios, 3:13.)
 
+"E os nossos aprendam também a aplicar-se às boas obras, nas coisas necessárias, para que não sejam infrutuosos." - Paulo. (TITO, 3:14.)

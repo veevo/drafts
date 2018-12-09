@@ -35,3 +35,11 @@ Nosso coração é diariamente lido pelos outros na palavra que emitimos, na fra
 Abstém-te de cultivar ressentimentos e ódios, para que o amor não te mantenha distante do próprio ambiente. Frequentemente, anseias por segurança e tranquilidade, no entanto, é forçoso não esquecer que paz e estabilidade estão em ti e se irradiam de ti.A grande tarefa do mundo espiritual, em seu mecanismo de relações com os homens encarnados, não é a de trazer conhecimentos sensacionais e extemporâneos, mas a de ensinar os homens a ler os sinais divinos que e vida terrestre contém em si mesma, iluminando-lhes a marcha para a espiritualidade superior. Supérfluo que nos enfeita é carência que aflige os outrosSuporta com serenidade e carinho o parente enfermo ou difícil. Através dele é que a sabedoria dos Céus te ensina a compreender e a perdoar. 
 
 Trabalha, aprende, ama, crê, espera e auxilia!... E, então, pedindo, receberás, porque atendendo aos interesses do Senhor, junto do próximo, o Senhor atenderá aos teus próprios interesses junto de ti. Aquele que te agride pode ser um doente. Não te queixes. Espera, não dramatizes. Ora. O troco do silêncio é uma bênção de paz. Recorda quantas vezes ferimos sem querer. Se o golpe é dos mais graves,entrega o assunto a Deus. Para sanar o mal, bastar-se-á viver. Asserena-te sempre e abençoa as provas que te assinalem a estrada, de vez que são essas mesmas provas que te estruturam o degrau exato que podes e deves transpor na conquista da própria felicidade, ante a Vida Maior. 
+
+"A prece é o traço de luz que une as almas que se amam, onde quer que encontrem". (Cartas do Coração);   
+
+"A prece é o hino dos corações". (Cartas de uma Morta).   
+
+"A prece deve ser cultivada, não para que se revoguem as disposições da lei divina, mas a fim de que a coragem e a paciência inundem o coração de fortaleza nas lutas ásperas, pórem necessárias. A alma, em se voltando para Deus, não deve ter em mente senão a humildade sincera na aceitação de sua vontade superior". (Emmanuel);   
+
+"Se a inquietação te bate à porta, busca a prece e medita". (Nosso Livro).   

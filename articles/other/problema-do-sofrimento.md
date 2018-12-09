@@ -1,0 +1,15 @@
+# O Problema do Sofrimento
+
+A dor desempenha papél fundamental na existência dos seres vivos. Papel extremamente positivo para a sobrevivência individual e coletiva, estimulando a criatividade e a produção de elementos de proteção.
+
+No caso específico dos seres humanos, a dor tem sido a grande incentivadora, também, na produção cultural, ressaltando-se aí o campo artístico. Todavia, é preciso frisar que não é o sofrimento em si o fator estimulante, mas a necessidade de superá-lo. Na verdade o ser humano é dirigido pelo “principio do prazer”. Estar bem é o objetivo essencial. Quando a dor interfere na fruição do bem-estar, impõe-se a necessidade dele ser restabelecido.
+
+Podemos concluir, com toda a tranqüilidade, que todos os seres têm a destinação de viver bem, com alegria e satisfação plena. Em última análise, Epicuro tinha razão, errando apenas sua filosofia no desvio para o hedonismo radical, que é o reforço do egoísmo, pela perversão da finalidade real do prazer.
+
+No atual estágio evolutivo, a existência prazerosa tem um defeito intrínseco de embotar a criatividade, desestimulando a procura de novas maneiras de viver e progredir. Se todos os seres vivessem em permanente satisfação, não tendo de lutar contra obstáculos e agressões do meio, a estagnação levaria à destruição da vida na Terra. A alternância dialética de dor e prazer é o mecanismo da evolução.
+
+No caso específico do ser humano, cabe notar que existem dois níveis bem determinados de sofrimento: o natural, que ele compartilha com os demais seres da natureza; este nível foi denominado pelo espírito André Luiz de “dor-evolução”, por ser aquela que o obriga a desenvolver meios de superação, ampliando os recursos de proteção por estimular a criatividade; e o artificial, originado por atitudes incompatíveis com as leis físicas e psicológicas que regem a existência. É a este que o autor citado se refere sob as rubricas de “dor-expiação” e “dor-resgate”. Tal denominação está vinculada a uma visão “legalista” do destino, dentro do quadro de “crime e castigo”. Prefiro ver o aspecto pedagógico da situação, ressaltando, no caso, uma “dor aprendizagem”, que permite a correção de “filosofias de vida” inadequadas. Allan Kardec, em “O Evangelho segundo o Espiritismo” analisa magistralmente esse tipo de dor, ao estudar as “causas da aflição”. Não se deve esquecer que, fisicamente, dor denuncia um processo orgânico requerendo correção, para que o sofredor volte a se sentir plenamente bem. O sofrimento existirá na Terra, enquanto o homem estiver voltado egoisticamente para seu bem-estar, à revelia do bem-estar dos outros. Isto o Cristo nos diz claramente quando recomenda que só devemos fazer aos outros o que gostaríamos que os outros nos fizessem.
+
+# Reference
+Djalma Motta Argollo  
+www.djalmaargollo.com  

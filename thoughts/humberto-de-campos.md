@@ -9,4 +9,5 @@ Não perca tempo com disputas vãs. Cuide de realizar a vontade do Senhor, dentr
 
 Se você já possui o tesouro de uma fé religiosa, viva de acordo com os preceitos que abraça. É horrível a responsabilidade moral de quem já conhece o caminho, sem equilibrar-se dentro dele
 
+"Por prece devemos interpretar todo ato de relação do Homem com Deus, como expressão de agradecimento ou de rogativa, a oração é sempre um esforço da criatura ante a Providência Divina. Os que apenas suplicam, podem ser ignorantes; os que louvam podem ser somente preguiçosos. Todo aquele, porém, que trabalha pelo bem, com as suas mãos e com o seu pensamento, esse é o filho que aprendeu a orar, na exaltação ou nas rogativas, porque em todas as circunstâncias será fiel a Deus, consciente de que a vontade do Pai é mais justa do que a sua própria". (Boa Nova).  
 

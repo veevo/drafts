@@ -7,4 +7,6 @@ O Espiritismo realiza o que Jesus disse do Consolador prometido: conhecimento da
 "O Espiritismo tornar-se-á uma crença popular ou ficará circunscrito a algumas pessoas?
 á uma crença popular, e marcará uma nova era na história da Humanidade, porque está na Natureza e é chegado o tempo em que deve tomar lugar entre os conhecimentos humanos. (...)" O Livro dos Espíritos, Allan Kardec, questão 798.
 
+“Vale mais pecar por excesso de prudência do que por excesso de confiança" [KARDEC, Allan. Viagem Espírita-1862, Brasília, Ed. Edicel, 2002, pág. 33]
+
 

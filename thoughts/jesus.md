@@ -9,3 +9,5 @@ Bem-aventurados os que têm puro o coração, porquanto verão a Deus. (S. Mateu
 
 “E os que estão junto do caminho são aqueles em quem a palavra é semeada; mas, tendo-a eles ouvido, vem logo Satanás e tira a palavra que neles foi semeada.” – Jesus. (Marcos, 4:15.)
 
+ “Onde quer que se encontre duas ou três pessoas em meu nome, eu com eles estarei.” Jesus (Mateus 18:20)
+

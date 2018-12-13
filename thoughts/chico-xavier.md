@@ -49,3 +49,7 @@ Seja você revestido da certeza, de que a noite mais escura vai passar
 Viver é sempre dizer aos outros que eles são importantes, que nós os amamos, porque um dia eles se vão e ficamos com a nítida impressão de que não os amamos o suficiente
 
 "Embora ninguém possa voltar atrás e fazer um novo começo, qualquer um pode começar agora e fazer um novo fim"
+
+“O Cristo não pediu muita coisa, não exigiu que as pessoas escalassem o Everest ou fizessem grandes sacrifícios. Ele só pediu que nos amássemos uns aos outros.”
+
+

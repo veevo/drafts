@@ -1,0 +1,22 @@
+# Cresçamos para o Bem
+
+> "Porque aquele que Deus enviou fala as palavras de Deus, pois não lhe dá Deus o Espírito por medida" Jesus (João, 3:34.)
+
+Observa a munificência das concessões Divinas por toda a parte.  
+Enquanto o homem raciona a distribuição desse ou daquele recurso, Deus não altera as suas Leis de abundância.  
+Anota na Terra em torno de ti:  
+O Sol magnificente nutrindo a vida em todas as direções...  
+O ar puro e sem medida...  
+A fonte que se dá sem reservas...  
+Tudo infinitamente doado a todos.  
+Tudo liberalmente repartido.  
+Qual ocorre às concessões do Senhor na ordem material, acontece no Reino do Espírito.  
+As portas da sabedoria e do Amor jazem constantemente abertas. Os tesouros da Ciência e as alegrias da compreensão humana, as glórias da arte e as luzes da sublimação interior são acessíveis a todas as criaturas.  
+No entanto, do rio de graças da vida, cada alma somente retira a porção de riquezas que possa perceber e utilizar proveitosamente.  
+Estuda, observa, trabalha e renova-te para o bem.  
+Amplia a visão que te é própria e auxilia os outros, ajudando a ti mesmo.  
+Recorda que Deus a ninguém dá seus dons por medida, contudo, cada alma traz consigo a medida que instalou no próprio íntimo para recepção dos dons de Deus.  
+
+# Reference
+Livro: Palavras da Vida Eterna  
+Emmanuel / Francisco Cândido Xavier  

@@ -11,3 +11,4 @@ E vós, irmãos, não vos canseis de fazer o bem (2ª Epístola aos Tessalonicen
 
 "E achado em forma como homem, humilhou-se a si mesmo, sendo obediente até à morte de cruz". - PAULO (Fillipenses, 2:8).
 
+“Não extingais o Espírito.” — PAULO (1 Tessalonicenses, 5.19)

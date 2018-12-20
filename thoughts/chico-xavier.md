@@ -52,4 +52,15 @@ Viver é sempre dizer aos outros que eles são importantes, que nós os amamos, 
 
 “O Cristo não pediu muita coisa, não exigiu que as pessoas escalassem o Everest ou fizessem grandes sacrifícios. Ele só pediu que nos amássemos uns aos outros.”
 
+A aceitação é a chave através da qual acharemos forças para suportarmos as provações.
+
+O Mal não precisa ser corrigido pelo mal quando o Bem chega antes.
+
+Não adianta o Diabo assoprar onde não há brasas.
+
+O velho sabe, o moço pode.
+
+# Tags
+Chico Xavier, Diabo, Caridade, Coragem, Provas, Aceitação, Mal, Bem
+
 

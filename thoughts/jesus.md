@@ -18,4 +18,6 @@ Bem-aventurados os que têm puro o coração, porquanto verão a Deus. (S. Mateu
 ## The Comforter
 If ye love me keep my commandments. And I will pray the Father and He shall give you another Comforter, that he may abide with you for ever. Even the Spirit of Truth; whom the world cannot receive, because it seeth him not, neither knoweth him; but ye shall know him; for he dwelleth with you, and shall be in you. But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you (John, 14: 15-17 & 26). 
 
+“E assenta-te no último lugar.” – Jesus. (Lucas, 14:10.)
 
+“E Jesus lhe disse: Ninguém, que lança mão do arado e olha para trás é apto para o reino de Deus.” – (Lucas, 9:62.)

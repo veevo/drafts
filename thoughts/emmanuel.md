@@ -43,3 +43,6 @@ Trabalha, aprende, ama, crê, espera e auxilia!... E, então, pedindo, receberá
 "A prece deve ser cultivada, não para que se revoguem as disposições da lei divina, mas a fim de que a coragem e a paciência inundem o coração de fortaleza nas lutas ásperas, pórem necessárias. A alma, em se voltando para Deus, não deve ter em mente senão a humildade sincera na aceitação de sua vontade superior". (Emmanuel);   
 
 "Se a inquietação te bate à porta, busca a prece e medita". (Nosso Livro).   
+
+"Recolhendo-nos, veremos o limite de tudo que nos cerca; expandindo-nos, conheceremos o infinito que nos envolve"
+

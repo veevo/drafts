@@ -21,3 +21,6 @@ If ye love me keep my commandments. And I will pray the Father and He shall give
 “E assenta-te no último lugar.” – Jesus. (Lucas, 14:10.)
 
 “E Jesus lhe disse: Ninguém, que lança mão do arado e olha para trás é apto para o reino de Deus.” – (Lucas, 9:62.)
+
+“E curai os enfermos que nela houver e dizei-lhes: É chegado a vós o reino de Deus.”  – Jesus. (Lucas, 10:9)
+

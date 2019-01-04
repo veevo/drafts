@@ -10,6 +10,5 @@ Nalguns, ainda muito tenazes são os laços da matéria para permitirem que o Es
 
 Aquele que pode ser, com razão, qualificado de espírita verdadeiro e sincero, se acha em grau superior de adiantamento moral. O Espírito, que nele domina de modo mais completo a matéria, dá-lhe uma percepção mais clara do futuro; os princípios da Doutrina lhe fazem vibrar fibras que nos outros se conservam inertes. Em suma: é tocado no coração, pelo que inabalável se lhe torna a fé. Um é qual músico que alguns acordes bastam para comover, ao passo que outro apenas ouve sons. Reconhece-se o verdadeiro espírita pela sua transformação moral e pelos esforços que emprega para domar suas inclinações más. Enquanto um se contenta com o seu horizonte limitado, outro, que apreende alguma coisa de melhor, se esforça por desligar-se dele e sempre o consegue, se tem firme a vontade.
 
-
 # Fonte
 O Evangelho segundo o Espiritismo, cap. XVII, item 4

@@ -42,4 +42,8 @@ Muita paz! Um abraço carinhoso do servidor humílimo e paternal de sempre,
 
 Bezerra
 
+# Autor
+Bezerra de Menezes
+
+# Fonte
 (Mensagem psicofônica do Espírito Bezerra de Menezes recebida pelo médium Divaldo Pereira Franco, no encerramento da Reunião Ordinária do Conselho Federativo Nacional, realizada em Brasília, em 11 de novembro de 2018. Revisada pelo autor espiritual

@@ -24,3 +24,4 @@ If ye love me keep my commandments. And I will pray the Father and He shall give
 
 “E curai os enfermos que nela houver e dizei-lhes: É chegado a vós o reino de Deus.”  – Jesus. (Lucas, 10:9)
 
+“Sou rei, mas o meu reino não é deste mundo.”

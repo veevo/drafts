@@ -1,0 +1,14 @@
+# Da prece pelos mortos e pelos Espíritos sofredores
+
+Os Espíritos sofredores reclamam preces e estas lhes são proveitosas, porque, verificando que há quem neles pense, menos abandonados se sentem, menos infelizes. Entretanto, a prece tem sobre eles ação mais direta: reanima-os, incute-lhes o desejo de se elevarem pelo arrependimento e pela reparação e, possivelmente, desvia-lhes do mal o pensamento. É nesse sentido que lhes pode não só aliviar, como abreviar os sofrimentos. (Veja-se: O Céu e o Inferno, 2ª Parte — “Exemplos”.)
+
+Pessoas há que não admitem a prece pelos mortos, porque, segundo acreditam, a alma só tem duas alternativas: ser salva ou ser condenada às penas eternas, resultando, pois, em ambos os casos, inútil a prece. Sem discutir o valor dessa crença, admitamos, por instantes, a realidade das penas eternas e irremissíveis e que as nossas preces sejam impotentes para lhes pôr termo. Perguntamos se, nessa hipótese, será lógico, será caridoso, será cristão recusar a prece pelos réprobos? Tais preces, por mais impotentes que fossem para os liberar, não lhes seriam uma demonstração de piedade capaz de abrandar-lhes os sofrimentos? Na Terra, quando um homem é condenado a galés perpétuas, quando mesmo não haja a mínima esperança de obter-se para ele perdão, será defeso a uma pessoa caridosa ir carregar-lhe os grilhões, para aliviá-lo do peso destes? Em sendo alguém atacado de mal incurável, dever-se-á, por não haver para o doente esperança nenhuma de cura, abandoná-lo, sem lhe proporcionar qualquer alivio? Lembrai-vos de que, entre os réprobos, pode achar-se uma pessoa que vos foi cara, um amigo, talvez um pai, uma mãe, ou um filho, e dizei se, não havendo, segundo credes, possibilidade de ser perdoado esse ente, lhe recusaríeis um copo d’água para mitigar-lhe a sede? um bálsamo que lhe seque as chagas? Não faríeis por ele o que faríeis por um galé? Não lhe daríeis uma prova de amor, uma consolação? Não, isso cristão não seria. Uma crença que petrifica o coração é incompatível com a crença em um Deus que põe na primeira categoria dos deveres o amor ao próximo. 
+
+
+A não eternidade das penas não implica a negação de uma penalidade temporária, dado não ser possível que Deus, em sua justiça, confunda o bem e o mal. Ora, negar, neste caso, a eficácia da prece, fora negar a eficácia da consolação, dos encorajamentos, dos bons conselhos; fora negar a força que haurimos da assistência moral dos que nos querem bem. 
+
+
+Outros se fundam numa razão mais especiosa: a imutabilidade dos decretos divinos. Deus, dizem esses, não pode mudar as suas decisões a pedido das criaturas; a não ser assim, careceria de estabilidade o mundo. O homem, pois, nada tem de pedir a Deus, só lhe cabendo submeter-se e adorá-lo.
+
+# Fonte
+O Evangelho segundo o Espiritismo, cap. XXVII, itens 18 a 20

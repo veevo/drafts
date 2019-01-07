@@ -15,4 +15,7 @@ E vós, irmãos, não vos canseis de fazer o bem (2ª Epístola aos Tessalonicen
 
 “Considera o que te digo, porque o Senhor te dará entendimento em tudo.” – Paulo. (2ª Epístola a Timóteo, 2:7.)
 
- 
+“Se estivesse ainda agradando aos homens, não seria servo do Cristo” – Paulo. (Gálatas, 1:10)
+
+“Sacrifícios, e ofertas, e holocaustos e oblações pelo pecado não quiseste, nem te agradaram”  – Paulo. (Hebreus, 10:8.)
+

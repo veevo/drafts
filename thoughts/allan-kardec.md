@@ -11,4 +11,4 @@ O Espiritismo realiza o que Jesus disse do Consolador prometido: conhecimento da
 
 Reconhece-se o verdadeiro Espírita pela sua transformação moral e pelos esforços que faz para domar suas más inclinações. (KARDEC, Allan. O Evangelho segundo o Espiritismo, cap. XVII, item 4.)
 
-
+“Fé inabalável só o é a que pode encarar frente a frente a razão, em todas as épocas da Humanidade.”

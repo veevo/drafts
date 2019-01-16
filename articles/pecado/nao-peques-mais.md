@@ -14,5 +14,8 @@ Aquelas pessoas que normalmente reclamam da vida, e gostam de dizer que seu prob
 
 Lembra quando Jesus curava e dizia: “vai e não voltes a pecar”! Pois é, vamos manter nosso pensamento elevado o maior tempo possível do dia e certamente seremos mais felizes. Muita paz amigos.
 
+# Autor
+Nilton Cardoso Moreira
+
 # Fonte
-TODO
+http://www.redeamigoespirita.com.br/profiles/blogs/n-o-peques-mais

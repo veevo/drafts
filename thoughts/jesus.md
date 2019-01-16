@@ -25,3 +25,8 @@ If ye love me keep my commandments. And I will pray the Father and He shall give
 “E curai os enfermos que nela houver e dizei-lhes: É chegado a vós o reino de Deus.”  – Jesus. (Lucas, 10:9)
 
 “Sou rei, mas o meu reino não é deste mundo.”
+
+“Digo-vos que, se a vossa justiça não for mais abundante que a dos escribas e dos fariseus, não entrareis no reino dos céus.”(S. MATEUS, cap. V, v. 20.)
+
+"Onde quer que se encontrem duas ou três pessoas reunidas em meu nome, eu com elas estarei." (S. MATEUS, cap. XVIII, v. 20.)
+ 

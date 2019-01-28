@@ -1,0 +1,20 @@
+# Em Nossas Mãos
+
+> “Venha a nós o teu reino; seja feita a tua vontade, assim na Terra como nos Céus.” — Jesus (Mateus, 6:10)
+
+Convence-te de que as Leis da Divina Sabedoria não se enganariam..    
+Situando-te na Terra, por tempo determinado, com vistas ao próprio burilamento que te cabe realizar, trazes contigo as faculdades que o Senhor te concedeu por instrumentos de trabalho.    
+Encontras-te no lugar certo em que te habilitas a desempenhar os encargos próprios. Tens contigo as criaturas mais adequadas a te impulsionarem nos caminhos à frente.    
+Passas pelas experiências de que não prescindes para a conquista da sublimação que demandas. Recebes os parentes e afeições de que mais necessitas para resgatar as dívidas do passado ou renovar-te nos impulsos de elevação.    
+Vives na condição certa na qual te compete efetuar as melhores aquisições de espírito.    
+Sofres lutas compatíveis com as tuas necessidades de conhecimento superior.    
+Varas acontecimentos dos quais não se te faz possível a desejada liberação, a fim de que adquiras autocontrole.    
+Atravessas circunstâncias, por vezes difíceis, de modo a conheceres o sabor da vitória sobre ti mesmo.    
+E em qualquer posição, na qual te vejas, dispões sempre de certa faixa de tempo a fim de fazer o bem aos outros, tanto quanto queiras, como julgues melhor, da maneira que te pareça mais justa e na extensão que desejas, para que, auxiliando aos outros, recebas dos outros mais amplo auxílio, no instante oportuno.    
+Segundo é fácil de observar, estás na Terra, de alma condicionada às leis de espaço e tempo, conforme o impositivo de autoaperfeiçoamento, em que todos nos achamos, no mundo físico ou fora dele, mas sempre com vastas possibilidades de exercer o bem e estendê-lo aos semelhantes, porque melhorar-nos e elevar-nos, educar-nos e, sobretudo, servir, são sempre medidas preciosas, invariavelmente em nossas próprias mãos.    
+
+# Fonte
+Emmanuel  
+Livro: Ceifa de Luz    
+Francisco Cândido Xavier  
+

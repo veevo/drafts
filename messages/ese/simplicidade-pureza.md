@@ -18,5 +18,5 @@ A partir do nascimento, suas idéias tomam gradualmente impulso, à medida que o
 
 O Espírito, pois, enverga temporariamente a túnica da inocência e, assim, Jesus está com a verdade, quando, sem embargo da anterioridade da alma, toma a criança por símbolo da pureza e da simplicidade.
 
-# Reference
-(Fonte: O Evangelho segundo o Espiritismo, cap. VIII, itens 1 a 4.)
+# Fonte
+O Evangelho segundo o Espiritismo, cap. VIII, itens 1 a 4

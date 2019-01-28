@@ -30,3 +30,9 @@ If ye love me keep my commandments. And I will pray the Father and He shall give
 
 "Onde quer que se encontrem duas ou três pessoas reunidas em meu nome, eu com elas estarei." (S. MATEUS, cap. XVIII, v. 20.)
  
+“Se vós estiverdes em mim, e as minhas palavras estiverem em vós, pedireis tudo o que quiserdes, e vos será feito.” – Jesus. (João, 15:7.)
+
+“Venha a nós o teu reino; seja feita a tua vontade, assim na Terra como nos Céus.” — Jesus (Mateus, 6:10)
+
+"Nem só de pão vive o homem..." Jesus (Mateus, 4:4)
+

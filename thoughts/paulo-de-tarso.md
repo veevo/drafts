@@ -19,3 +19,11 @@ E vós, irmãos, não vos canseis de fazer o bem (2ª Epístola aos Tessalonicen
 
 “Sacrifícios, e ofertas, e holocaustos e oblações pelo pecado não quiseste, nem te agradaram”  – Paulo. (Hebreus, 10:8.)
 
+“E tudo quanto fizerdes, fazei-o de todo o coração, como ao Senhor, e não aos homens.” – Paulo. (Colossenses, 3:23.)
+
+“Mas a graça foi dada a cada um de nós, segundo a medida do dom do Cristo.” Paulo (Efésios, 4:7)
+
+“Tende paz entre vós.” – Paulo. (1ª Epístola aos Tessalonicenses, 5:13.)
+
+“Não vos comuniqueis com as obras infrutuosas das trevas.” – Paulo. (Efésios, 5:11.)
+

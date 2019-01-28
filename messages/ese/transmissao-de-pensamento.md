@@ -16,5 +16,5 @@ Pela prece, obtém o homem o concurso dos bons Espíritos que acorrem a sustent�
 
 Não, pois que houvera podido encontrar na prece a força de resistir às tentações.
 
-# Referência
-(Fonte: O Evangelho segundo o Espiritismo, cap. XXVII, itens 9 a 11.) 
+# Fonte
+O Evangelho segundo o Espiritismo, cap. XXVII, itens 9 a 11

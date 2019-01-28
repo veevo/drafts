@@ -1,0 +1,16 @@
+# A Lição do Essencial
+
+Discorriam os discípulos, entre si, quanto às coisas essenciais ao bem-estar, quando o Senhor, assumindo a direção dos pensamentos em dissonância, acrescentou: É indispensável que a criatura entenda a própria felicidade para que se não transforme, ao perdê-la, em triste fantasma da lamentação. Longe das verdades mais simples da Natureza, mergulha-se o homem na onda pesada de fantasiosos artifícios, exterminando o tempo e a vida, através de inquietações desnecessárias.
+
+E como quem recordava incidente adequado ao assunto, interrompeu-se por alguns instantes e retomou a palavra, comentando:
+— Ilustre dama romana, em companhia dum filhinho de cinco anos, dirigia-se da cidade dos Césares para Esmirna, em luxuosa galera de sua pátria. Ao penetrar na embarcação, fizera-se acompanhar de dois escravos, carregados de volumosa bagagem de joias diferentes: colares e camafeus, braceletes e redes de ouro, adornados com pedrarias, revelavam-lhe a predileção pelos enfeites raros. Todo o pessoal de serviço inclinou-se, com respeito, ao vê-la passar, tão elevada era a expressão do tesouro que trazia para bordo. Tão logo se fez o barco ao mar alto, a distinta senhora converteu-se no centro das atenções gerais. Nas festas de cordialidade era o objetivo de todos os interesses pelos adornos brilhantes com que se apresentava. A excursão prosseguia tranquila, quando, em certa manhã ensolarada, apareceu o imprevisto. O choque em traiçoeiro recife abre extensa brecha na galera e as águas a invadem. Longas horas de luta surgem com a expectativa de refazimento; entretanto, um abalo mais forte leva o navio a posição irremediável e alguns botes descidos são colocados à disposição dos viajantes para os trabalhos de salvamento possível. A ilustre patrícia é chamada à pressa. O comandante calcula a chegada a porto próximo em dois dias de viagem arriscada, na hipótese de ventos favoráveis. A jovem matrona abraça o filhinho, esperançosa e aflita. Dentro em pouco ela atinge o pequeno barco de socorro, sustentando a criança e pequeno pacote em que os companheiros julgaram trouxesse as joias mais valiosas. Todavia, apresentando o conteúdo aos poucos irmãos de infortúnio que seguiriam junto dela, exclamou:
+“— Meu filho é o que possuo de mais precioso e aqui tenho o que considero de mais útil. O insignificante volume continha dois pães e dez figos maduros, com os quais se alimentou a reduzida comunidade de náufragos, durante as horas aflitivas que os separavam da terra firme”.
+
+O Mestre repousou, por alguns segundos, e acrescentou:
+— A felicidade real não se fundamenta em riquezas transitórias, porque, um dia sempre chega em que o homem é constrangido a separar-se dos bens exteriores mais queridos ao coração. Os loucos se apegam a terras e moinhos, moedas e honras, vinhos e prazeres, como se nunca devessem acertar contas com a morte... O espírito prudente, porém, não desconhece que todos os patrimônios do mundo devem ser usados para nosso enriquecimento na virtude e que as bênçãos mais simples da Natureza são as bases de nossa tranquilidade essencial. Procuremos, pois, o Reino de Deus e sua justiça, tomando à Terra o estritamente necessário à manutenção da vida física e todas as alegrias ser-nos-ão acrescentadas.
+
+
+# Fonte
+Neio Lúcio
+Livro: Jesus No Lar
+Francisco Cândido Xavier pelo Espírito Neio Lúcio

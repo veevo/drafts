@@ -27,3 +27,6 @@ E vós, irmãos, não vos canseis de fazer o bem (2ª Epístola aos Tessalonicen
 
 “Não vos comuniqueis com as obras infrutuosas das trevas.” – Paulo. (Efésios, 5:11.)
 
+Que fareis, pois, irmãos? Quando vos ajuntais, cada um de vós tem salmo, tem doutrina, tem revelação, tem língua, tem interpretação. Faça-se tudo para edificação. (I Coríntios, 14:26)
+
+“Antes exortai-vos uns aos outros, todos os dias, durante o tempo que se chama Hoje; para que nenhum de vós se endureça pelo engano do pecado.” (Hebreus, 3:13.)

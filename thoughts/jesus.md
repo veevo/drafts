@@ -36,3 +36,8 @@ If ye love me keep my commandments. And I will pray the Father and He shall give
 
 "Nem só de pão vive o homem..." Jesus (Mateus, 4:4)
 
+“Porque com a mesma medida com que medirdes também vos medirão.” – Jesus. (Lucas, 6:38.)
+
+“E Jesus lhe disse: Ninguém, que lança mão do arado e olha para trás é apto para o reino de Deus.” – (Lucas, 9:62.)
+
+"Porfiai por entrar pela porta estreita..." - Jesus (Lucas, 13:24.).

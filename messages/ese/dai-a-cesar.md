@@ -12,6 +12,5 @@ A questão proposta a Jesus era motivada pela circunstância de que os judeus, a
 
 Esta sentença: “Dai a César o que é de César”, não deve, entretanto, ser entendida de modo restritivo e absoluto. Como em todos os ensinos de Jesus, há nela um princípio geral, resumido sob forma prática e usual e deduzido de uma circunstância particular. Esse princípio é conseqüente daquele segundo o qual devemos proceder para com os outros como queiramos que os outros procedam para conosco. Ele condena todo prejuízo material e moral que se possa causar a outrem, toda postergação de seus interesses. Prescreve o respeito aos direitos de cada um, como cada um deseja que se respeitem os seus. Estende-se mesmo aos deveres contraídos para com a família, a sociedade, a autoridade, tanto quanto para com os indivíduos em geral.
 
-***********
-
-(Fonte: O Evangelho segundo o Espiritismo, cap. XI, itens 5 a 7.)
+# Fonte
+O Evangelho segundo o Espiritismo, cap. XI, itens 5 a 7

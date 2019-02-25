@@ -41,3 +41,8 @@ If ye love me keep my commandments. And I will pray the Father and He shall give
 “E Jesus lhe disse: Ninguém, que lança mão do arado e olha para trás é apto para o reino de Deus.” – (Lucas, 9:62.)
 
 "Porfiai por entrar pela porta estreita..." - Jesus (Lucas, 13:24.).
+
+“Em vão, porém, me honram, ensinando doutrinas que são mandamentos de homens.” — Jesus. (Marcos, capítulo 7, versículo 7.)
+
+“Mas seja o vosso falar: sim, sim; não, não.” – Jesus. (Mateus, 5:37.)
+

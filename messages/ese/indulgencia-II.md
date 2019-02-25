@@ -1,0 +1,13 @@
+# A indulgência (II)
+
+Sede indulgentes com as faltas alheias, quaisquer que elas sejam; não julgueis com severidade senão as vossas próprias ações e o Senhor usará de indulgência para convosco, como de indulgência houverdes usado para com os outros.
+
+Sustentai os fortes: animai-os à perseverança. Fortalecei os fracos, mostrando-lhes a bondade de Deus, que leva em conta o menor arrependimento; mostrai a todos o anjo da penitência estendendo suas brancas asas sobre as faltas dos humanos e velando-as assim aos olhares daquele que não pode tolerar o que é impuro. Compreendei todos a misericórdia infinita de vosso Pai e não esqueçais nunca de lhe dizer, pelos pensamentos, mas, sobretudo, pelos atos: “Perdoai as nossas ofensas, como perdoamos aos que nos hão ofendido.” Compreendei bem o valor destas sublimes palavras, nas quais não somente a letra é admirável, mas principalmente o ensino que ela veste.
+
+Que é o que pedis ao Senhor, quando implorais para vós o seu perdão? Será unicamente o olvido das vossas ofensas? Olvido que vos deixaria no nada, porquanto, se Deus se limitasse a esquecer as vossas faltas, Ele não puniria, é exato, mas tampouco recompensaria. A recompensa não pode constituir prêmio do bem que não foi feito, nem, ainda menos, do mal que se haja praticado, embora esse mal fosse esquecido. Pedindo-lhe que perdoe os vossos desvios, o que lhe pedis é o favor de suas graças, para não reincidirdes neles, é a força de que necessitais para enveredar por outras sendas, as da submissão e do amor, nas quais podereis juntar ao arrependimento a reparação.
+
+Quando perdoardes aos vossos irmãos, não vos contenteis com o estender o véu do esquecimento sobre suas faltas, porquanto, as mais das vezes, muito transparente é esse véu para os olhares vossos. Levai-lhes simultaneamente, com o perdão, o amor; fazei por eles o que pediríeis fizesse o vosso Pai celestial por vós. Substitui a cólera que conspurca, pelo amor que purifica. Pregai, exemplificando, essa caridade ativa, infatigável, que Jesus vos ensinou; pregai-a, como ele o fez durante todo o tempo em que esteve na Terra, visível aos olhos corporais e como ainda a prega incessantemente, desde que se tornou visível tão-somente aos olhos do Espírito. Segui esse modelo divino; caminhai em suas pegadas; elas vos conduzirão ao refúgio onde encontrareis o repouso após a luta. Como ele, carregai todos vós as vossas cruzes e subi penosamente, mas com coragem, o vosso calvário, em cujo cimo está a glorificação.
+
+# Fonte
+João, bispo de Bordéus, 1862
+O Evangelho segundo o Espiritismo, cap. X, item 17

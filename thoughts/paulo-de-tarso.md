@@ -36,3 +36,16 @@ Que fareis, pois, irmãos? Quando vos ajuntais, cada um de vós tem salmo, tem d
 “Por isso te lembro despertes o dom de Deus que existe em ti.” - Paulo. (II Timóteo, 1:6.)
 
 “Não vos enganeis; as más conversações corrompem os bons costumes.” – Paulo. (1ª Epístola aos Coríntios, 15:33.)
+
+“E fazei veredas direitas para os vossos pés, para que o que manqueja se não desvie inteiramente, mas antes seja sarado.” – Paulo. (Hebreus, 12:13.)
+
+“Vós, filhos, sede obedientes a vossos pais, no Senhor, porque isto é justo.” – Paulo. (EFÉSIOS, 6:1.)
+
+“Sejamos sóbrios, vestindo-nos da couraça da fé e da caridade.” – Paulo. (1ª Epístola aos Tessalonicenses, 5:8.)
+
+“Acho então esta lei em mim: quando quero fazer o bem, o mal está comigo” Paulo (Romanos, 7:21)
+
+“Linguagem sã e irrepreensível para que o adversário se envergonhe, não tendo nenhum mal que dizer de nós.” Paulo (Tito, 2 :8)
+
+“Mas, se pelo espírito mortificardes as obras da carne, vivereis.”  – Paulo. (Romanos, 8:13.)
+

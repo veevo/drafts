@@ -1,0 +1,10 @@
+# A surra de bíblia
+
+Lutando no tratamento de 4 irmãs obsidiadas, José e Chico Xavier gastaram alguns meses até que surgisse a cura completa. No princípio, porém, da tarefa assistencial houve uma noite em que José foi obrigado a viajar em serviço da sua profissão de seleiro. Mudara-se para Pedro Leopoldo um homem bom e rústico, de nome Manuel, que o povo dizia muito experimentado em doutrinar espíritos das trevas. O irmão do Chico não hesitou e resolveu visitá-lo, pedindo cooperação. Necessitava ausentar-se, mas o socorro às doentes não deveria ser interrompido. "Seu" Manoel aceitou o convite e, na hora aprazada, compareceu ao "Centro Espírita Luiz Gonzaga", com uma Bíblia antiga sob o braço direito. A sessão começou eficiente e pacífica.
+
+Como de outras vezes, depois das preces e instruções de abertura, o Chico seria o médium para a doutrinação dos obsessores. Um dos espíritos amigos incorporou-se, por intermédio dele, fornecendo a precisa orientação e disse ao "seu" Manuel entre outras coisas: - Meu amigo, quando o perseguidor infeliz apossar-se do médium, aplique o Evangelho com veemência. - Pois não, - respondeu o diretor muito calmo, - a vossa ordem será obedecida.
+
+E quando a primeira das entidades perturbadas assenhoreou o aparelho mediúnico, exigindo assistência evangelizante, "seu" Manuel tomou a Bíblia de grande formato e bateu, com ela, muitas vezes, sobre o crânio do Chico, exclamando, irritadiço: - Tome Evangelho! Tome Evangelho!... O obsessor, sob a influência de benfeitores espirituais da casa, afastou-se, de imediato, e a sessão foi encerrada. Mas o Chico sofreu intensa torção no pescoço e esteve seis dias de cama para curar o torcicolo doloroso. E, ainda hoje, ele afirma satisfeito que será talvez das poucas pessoas do mundo que terão tomado "uma surra de Bíblia"... 
+
+# Fonte
+Casa de Oração Missionários da Luz

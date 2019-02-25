@@ -1,0 +1,20 @@
+# Dissertações de além-túmulo
+
+Pobres homens que poucos conheceis os fenômenos mais comuns que fazem vossa vida! Credes ser bem sábios, credes possuir uma vasta erudição, e a esta pergunta de todas as crianças: Que fazemos quando dormimos? O que são os sonhos? Permaneceis interditados. Não tenho a pretensão de vos fazer compreender o que vou vos explicar, porque há coisas às quais vosso Espírito não pode ainda se submeter, não admitindo senão o que compreende.
+
+O sono liberta inteiramente a alma do corpo. Quando se dorme, se está, momentaneamente, no estado em que se acha de um modo fixo depois da morte. Os Espíritos que são logo desligados da matéria em sua morte, tiveram sonos inteligentes; aqueles, quando dormem, juntam-se à sociedade de outros seres superiores a eles: viajam, conversam e se instruem com eles; trabalham mesmo em obras que encontram prontas quando morrem. Isso deve nos ensinar, uma vez mais, a não temermos a morte, porque morreis todos os dias, segundo a palavra de um santo.
+
+É assim para os Espíritos elevados; mas para a massa dos homens que na morte devem permanecer longas horas nessa perturbação, nessa incerteza da qual vos falaram, aqueles vão, seja em mundos inferiores à Terra, onde antigas afeições o chamam, seja procurar prazeres talvez ainda mais baixos que aqueles que têm aqui; vão haurir doutrinas mais vis, mais ignóbeis, mais nocivas do que aquelas que professam em vosso meio. E o que faz a simpatia na Terra não é outra coisa senão esse fato, que se sente ao despertar, de se aproximar pelo coração daqueles com quem viemos de passar oito ou nove horas de felicidade ou de prazer. O que explica essas antipatias invencíveis, é que se sabe, no fundo de seu coração, que aquelas pessoas têm uma outra consciência que a nossa porque são conhecidas sem tê-las jamais visto com os olhos. É ainda o que explica a indiferença, uma vez que não se deseja fazer novos amigos, quando se sabe que existem outros que vos amam e que vos querem. Em uma palavra, o sono influi mais que pensais em vossa vida.
+
+Pelo efeito do sono, os Espíritos encarnados estão sempre em relação com o mundo dos Espíritos, e é o que faz que os Espíritos superiores consintam, sem muita repulsa, se encarnarem entre vós. Deus quis que, durante seu contato com o vício, eles possam ir se retemperarem nas fontes do bem, para eles mesmos não falirem, eles que vêm instruir os outros. O sono é a porta que Deus lhes abre até os amigos do céu; é a recreação depois do trabalho, na espera da grande libertação, a liberação final que deverá devolvê-los ao seu verdadeiro meio.
+
+O sonho é a lembrança daquilo que vosso Espírito viu durante o sono, mas notai que não sonhais sempre, porque não vos lembrais sempre do que vistes, ou de tudo o que vistes. Vossa alma não está em todo desenvolvimento; não é, frequentemente, senão a lembrança de uma perturbação que acompanha vossa partida ou vossa reentrada, à qual se junta a do que fizestes ou do que vos preocupou no estado de vigília; sem isso, como explicaríeis esses sonhos absurdos que têm os mais sábios como os mais simples? Os maus Espíritos se servem também dos sonhos para atormentar as almas fracas e pusilânimes.
+
+De resto, vereis em pouco se desenvolver uma nova espécie de sonho; ela é tão antiga quanto a que conheceis, mas a ignorais. O sonho de Joana, o sonho de Jacó o sonho dos profetas judeus e de alguns adivinhos indianos; aquele sonho é a lembrança da alma inteiramente desligada do corpo, a lembrança dessa segunda vida, da qual vos falei ainda há pouco.
+
+Procurai distinguir bem essas duas espécies de sonho dos quais vos lembrareis, sem isso cairíeis nas contradições e nos erros, que seriam funestos à vossa fé.
+
+Nota. – O Espírito que ditou esta comunicação, instado a dar seu nome, respondeu: “Para quê? Credes, pois, que não haja senão os Espíritos de vossos grandes homens que vêm dizer-vos coisas boas? Contai, pois, por nada todos aqueles que não conheceis ou que não têm nome sobre a vossa Terra? Sabei que muitos não tomam um nome senão para vos contentar.”
+
+# Fonte
+Revista Espírita, dezembro de 1858

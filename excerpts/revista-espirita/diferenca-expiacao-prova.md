@@ -1,0 +1,6 @@
+# Diferença entre expiação e prova
+
+A expiação – diz o Codificador – implica necessariamente a ideia de um castigo mais ou menos penoso, resultado de uma falta cometida. A prova não tem relação com falta anterior, mas implica sempre um estado de inferioridade real ou presumível do Espírito, porque quem chegou ao ponto culminante a que aspira não necessita mais de provas. Kardec diz ainda que em certos casos a prova se confunde com a expiação, ou seja, a expiação pode servir de prova e a prova servir de expiação. E cita o exemplo do aluno que se apresenta para receber a graduação, submetendo-se a uma prova. Se falhar, terá de recomeçar o trabalho, por vezes penoso, cuja carga é uma espécie de punição da negligência no primeiro. A segunda prova é, portanto, além de prova, uma expiação. Kardec esclarece, por fim, que é um erro pensar que o caráter essencial da expiação seja o de ser imposta, pois o próprio Espírito pode solicitá-la.
+
+# Fonte
+Allan kardec – Revista Espírita, 1863, pp. 268 a 274

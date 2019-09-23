@@ -1,0 +1,15 @@
+# Não vim trazer a paz, mas a divisão (III)
+
+Quando Jesus declara: “Não creais que eu tenha vindo trazer a paz, mas, sim, a divisão”, seu pensamento era este:
+
+“Não creais que a minha doutrina se estabeleça pacificamente; ela trará lutas sangrentas, tendo por pretexto o meu nome, porque os homens não me terão compreendido, ou não me terão querido compreender. Os irmãos, separados pelas suas respectivas crenças, desembainharão a espada um contra o outro e a divisão reinará no seio de uma mesma família, cujos membros não partilhem da mesma crença. Vim lançar fogo à Terra para expungi-la dos erros e dos preconceitos, do mesmo modo que se põe fogo a um campo para destruir nele as ervas más, e tenho pressa de que o fogo se acenda para que a depuração seja mais rápida, visto que do conflito sairá triunfante a verdade. 
+
+A guerra sucederá a paz; ao ódio dos partidos, a fraternidade universal; às trevas do fanatismo, a luz da fé esclarecida. Então, quando o campo estiver preparado, eu vos enviarei o Consolador, o Espírito de Verdade, que virá restabelecer todas as coisas, isto é, que, dando a conhecer o sentido verdadeiro das minhas palavras, que os homens mais esclarecidos poderão enfim compreender, porá termo à luta fratricida que desune os filhos do mesmo Deus. Cansados, afinal, de um combate sem resultado, que consigo traz unicamente a desolação e a perturbação até ao seio das famílias, reconhecerão os homens onde estão seus verdadeiros interesses, com relação a este mundo e ao outro. Verão de que lado estão os amigos e os inimigos da tranqüilidade deles. Todos então se porão sob a mesma bandeira: a da caridade, e as coisas serão restabelecidas na Terra, de acordo com a verdade e os princípios que vos tenho ensinado.”
+
+O Espiritismo vem realizar, na época prevista, as promessas do Cristo. Entretanto, não o pode fazer sem destruir os abusos. Como Jesus, ele topa com o orgulho, o egoísmo, a ambição, a cupidez, o fanatismo cego, os quais, levados às suas últimas trincheiras, tentam barrar-lhe o caminho e lhe suscitam entraves e perseguições. Também ele, portanto, tem de combater; mas, o tempo das lutas e das perseguições sanguinolentas passou; são todas de ordem moral as que terá de sofrer e próximo lhes está o termo. As primeiras duraram séculos; estas durarão apenas alguns anos, porque a luz, em vez de partir de um único foco, irrompe de todos os pontos do Globo e abrirá mais de pronto os olhos aos cegos.
+
+Essas palavras de Jesus devem, pois, entender-se com referência às cóleras que a sua doutrina provocaria, aos conflitos momentâneos a que ia dar causa, às lutas que teria de sustentar antes de se firmar, como aconteceu aos hebreus antes de entrarem na Terra Prometida, e não como decorrentes de um desígnio premeditado de sua parte de semear a desordem e a confusão. O mal viria dos homens e não dele, que era como o médico que se apresenta para curar, mas cujos remédios provocam uma crise salutar, atacando os maus humores do doente.
+
+# Fonte
+O Evangelho segundo o Espiritismo, cap. XXIII, itens 16 a 18
+

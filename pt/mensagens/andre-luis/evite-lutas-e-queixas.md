@@ -1,0 +1,2 @@
+André Luiz
+Se você traz consigo, algum problema, peça a Deus coragem para suportá-lo, evitando queixas e lutas que fariam de você um problema difícil para os outros e, trabalhando e servindo em silêncio, com paciência e bondade, você observará que Deus transformará os outros em canais de socorro espontâneo a seu favor, pelos quais, sem alarme e sem perda de tempo, encontrará você a necessária e a melhor solução

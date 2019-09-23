@@ -1,0 +1,21 @@
+# Como os Espíritos e o Espiritismo consideram o suicídio?
+
+## 1. Como os Espíritos e o Espiritismo consideram o suicídio?
+R: Usando unicamente os ensinos dos Espíritos constantes da Codificação, o suicídio é tido como um crime aos olhos de Deus (Céu e Inferno, cap. 5), e que importa numa transgressão da Lei Divina (Livro dos Espíritos, pergunta 944) e constitui sempre uma falta de resignação e submissão à vontade do Criador (idem, perg. 953-a). Desse modo, “jamais o homem tem o direito de dispor da vida, porquanto só a Deus cabe retirá-lo do cativeiro da Terra, quando o julgue oportuno. O suicida é qual o prisioneiro que se evade da prisão, antes de cumprida a pena; quando preso de novo, é mais severamente tratado. O mesmo se dá com o suicida que julga escapar às misérias do presente e mergulha em desgraças maiores” (Evangelho Segundo o Espiritismo, cap XXVII, item 71)
+
+## 2. Por que os Espíritos tratam desse assunto com certa constância?
+R: Primeiramente, como já afirmamos, porque ele é tema sempre atual, pois que o suicídio tem sido marca constante de nossa civilização; segundo, que é o mais importante: a doutrina dos Espíritos, tem um caráter consolador absoluto: através do fato mediúnico (no dizer do cultíssimo Herculano Pires, o fato mediúnico é literalmente uma segunda ressurreição) o espírito volta à carne, não a que deixou no túmulo, mas a do médium que lhe oferece, num gesto de amor, a oportunidade de retorno aos corações que deixou no mundo (Mediunidade, cap 5), é permitido que os próprios suicidas venham dizer-nos que eles não morreram e afirmam que não só não solucionaram o problema que os levou ao ato extremo, como ainda estão “vivos” e, de quebra, com dois problemas: o antigo e o novo, gerado pela violação das leis da Vida. Assim, o Espiritismo trabalha preventivamente para que as pessoas saibam das responsabilidades em praticar atos que possam agravar sua situação futura e não para condená-las ao martírio eterno.
+
+## 3. Quais as causas que levam o Ser ao suicídio?
+R: A incredulidade, a falta de fé, a dúvida, as idéias materialistas. Em suma, crer que o Nada é o futuro, como se o Nada pudesse oferecer consolação, como se fosse remédio para supostamente abreviar o sofrimento, crença que, na verdade, se constitui em covardia moral.
+
+## 4. Quais as conseqüências do suicídio para o Espírito?
+R: Em primeiro lugar, é preciso aclarar-se que o suicídio não apaga a falta cometida, mas, ao contrário, em vez de uma haverá duas; em segundo, que o Espírito, quando se dá conta do ato cometido, constata que nada valeu, ficando literalmente desapontado com os efeitos obtidos e que não eram os buscados, pois se certifica que a vida não se extinguiu e que continua mais real que nunca. Terceiro, e que é bastante doloroso, o suicídio agrava todos os sofrimentos: “depois de prolongados suplícios, nas regiões purgatórias, freqüentemente, após diversas tentativas frustradas de renascimento, readquirem o corpo de carne, mas transportam neles deficiências do corpo espiritual, cuja harmonia desajustaram. Nessa fase, exibem cérebros retardados ou moléstias nervosas obscuras”, segundo Emmanuel em Leis de Amor, capitulo VI.
+
+## 5. Então, não há esperança de recuperação para o suicida?
+R: Claro que há – total! Deus é Amor e Ele outorga a todas as Criaturas a maior expressão da Sua Bondade Infinita: a possibilidade de os Seres evoluírem sempre, incessantemente; permite que as existências se sucedam ofertando as oportunidades infinitas de reajuste e reforma; e isso é possível através do mais efetivo veiculo da Lei de Evolução: a reencarnação.
+
+Portanto, os familiares do suicida de ontem ou de hoje não se exasperem, ao contrário, mantenham viva a esperança de que é possível a remissão das faltas e que o Pai de Misericórdia propiciará os meios de fazer com que o próprio autor do ato extremo se reconheça Espírito Eterno e indestrutível, e que a calma, a resignação e a fé serão os mais seguros preservativos contra as idéias autodestrutivas. Não será demais que se lhes repita: Deus é Bondade Infinita e, portanto, não permite que Suas Criaturas sofram indefinidamente e que esse sofrimento poderá ser abreviado mais rapidamente mercê de orações sinceras e cheias de amor de todos quantos querem que se restabeleça o Bem.
+
+# Fonte
+Revista Espiritismo e Ciência 11, páginas 06-08

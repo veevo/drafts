@@ -12,3 +12,13 @@ O Espiritismo realiza o que Jesus disse do Consolador prometido: conhecimento da
 Reconhece-se o verdadeiro Espírita pela sua transformação moral e pelos esforços que faz para domar suas más inclinações. (KARDEC, Allan. O Evangelho segundo o Espiritismo, cap. XVII, item 4.)
 
 “Fé inabalável só o é a que pode encarar frente a frente a razão, em todas as épocas da Humanidade.”
+
+"O verdadeiro espírita não é o que crê nas comunicações, mas o que procura aproveitar os ensinamentos dos Espíritos De nada adianta crer, se sua crença não o faz dar sequer um passo na senda do progresso, e não o torna melhor para o próximo"
+
+A riqueza constitui uma prova muito arriscada, mais perigosa do que a miséria É o supremo excitante do orgulho, do egoísmo e da vida sensual É o laço mais forte que prende o homem à Terra e lhe desvia do céu os pensamentos
+
+O sinal mais característico da imperfeição do homem, é o seu interesse pessoal
+
+Os espíritos protetores nos ajudam com os seus conselhos, através da voz da consciência, que fazem falar em nosso íntimo - mas como nem sempre lhes damos a necessária importância, oferecem-nos outros mais diretos, servindo-se das pessoas que nos cercam
+
+
